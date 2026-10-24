@@ -1,0 +1,1 @@
+# corte-de-producao-Se-o-aplicativo-estiver-em-portugu-s-podemos-se
